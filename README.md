@@ -1,0 +1,2 @@
+# tumbuk
+Pengetahuan adalah kekuatan
